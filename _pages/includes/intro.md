@@ -1,0 +1,2 @@
+# 👋 About Me
+Hi!👋 My name is **Yutong Qian**. I am a third-year undergraduate student majoring in Underwater Acoustic Engineering at Jiangsu University of Science and Technology. My research interests include Electric Vehicle Batteries, Eye Tracking, and Sea State Prediction. ‼️ I am actively seeking a Summer 2026 research internship and industry R&D / engineering positions for Fall 2026 or Spring 2027 entry. If you are interested in my research experience, I would be very happy to connect.
